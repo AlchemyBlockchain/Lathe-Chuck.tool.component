@@ -5,3 +5,4 @@
 - [Z011A Collet Zinc Alloy 3-Jaw 4-Jaw Lathe Chuck Clamps Used For Wood Turning Lathe Tool Machine Tool Accessories](https://www.aliexpress.us/item/3256807890352389.html)
 - [Zinc Alloy 4-Jaw Chuck Connecting Rod Self Centering Wood Turning Chuck Optional Clamp Accessories for Mini Metal Lathe](https://www.aliexpress.us/item/3256807787187202.html)
 - [K12-100 4 Jaw Self-Centering 100mm(3.94ft) Lathe Manual Scroll Chuck For Mini Mechanical Lathe For Wood Processing](https://www.aliexpress.us/item/3256807417497131.html)
+- [VEVOR 4-Jaw Lathe Chuck K72-125 125 mm / K72-100 100 mm Independent Reversible Jaw Metal Lathe Chuck Turning Machine Accessories](https://www.aliexpress.us/item/3256802666072112.html)
